@@ -1,5 +1,5 @@
 - 🖖 Hi, I’m @zetacomputer
-- 🙃 I’m interested in all things space 🌌 and science related 🧑‍🔬 👨‍🔬
+- 🗺️ I’m interested in all things space 🌌 and science 👨‍🔬 related.
 
 
 <!---

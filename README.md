@@ -1,4 +1,4 @@
-- 🖖 Hi, I’m @zetacomputer
+- 🖖 Hi, I’m @oppocomputer
 - 🗺️ I’m interested in all things space 🌌 and science 👨‍🔬 related.
 
 
